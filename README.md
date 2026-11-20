@@ -1,4 +1,8 @@
-men tayyorm
-#Uyga-vazifa
-# Uyga-vazifa2
 # Uyga-vazifa
+Screenshot_20261119_205623_Gallery.jpg
+Screenshot_20261119_205637_Gallery.jpg
+Screenshot_20261119_205640_Gallery.jpg
+Screenshot_20261119_205650_Gallery.jpg
+Screenshot_20261119_205701_Gallery.jpg
+Screenshot_20261119_205703_Gallery.jpg
+Screenshot_20261119_205707_Gallery.jpg
